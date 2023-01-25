@@ -204,30 +204,31 @@ Rồi lại nhiếp về trong Tổ Khiếu, một hạt bụi trần chẳng nh
 
 Như vậy, càng liễm nhiếp thêm, tan hết về trong Tổ Khiếu, một hạt bụi trần chẳng nhiễm, tịch diệt mà tĩnh định, tĩnh định mà tịch diệt. Tĩnh định dài lâu, thì biến hóa của Lục Long đã đủ, mà Thần biến thành Xá Lợi Chi Quang. Như vầng mặt trời rực rỡ, từ trong Tổ Khiếu nhảy vọt ra, hóa thành vạn đạo hào quang, lên thẳng trên Cửu Tiêu, phổ chiếu đại thiên thế giới. Mới như kệ ngôn mà Đại Giác thiền sư nói. Mới biết lời Thái Thượng: trời đất có hư hoại, thì cái đó bất hoại. Cái đó mới là Tiên Thiên Chủ Nhân Ông, cái đó mới là Chân Tính Bản Thể, cái đó mới là Kim Cương Bất Biến Bất Hoán Chi Toàn Chân, cái đó mới là Vô Thủy Dĩ Lai Bất Sanh Bất Diệt Chi Nguyên Thần. Cái đó Đại Thần Thông, Đại Tính Quang, giác chiếu Diêm Phù Đề, phổ độ nhất thiết, mới là vô lượng công đức bất khả xưng, bất khả lượng, bất khả tư nghị.
 
-Nên kệ rằng:
-Một hạt Xá Lợi sáng rừng rực,
-Chiếu hết ức vạn vô cùng kiếp.
-Đại thiên thế giới tổng quy y,
-Tam thập tam thiên hàm thống nhiếp.
-[Mẫn Nhất Đắc, đời thứ 11 của Bắc Tông Long Môn, đọc kinh này xong, hoan hỉ mạnh mẽ, trăm vái khấu đầu, cẩn thận hiến một bài kệ rằng:
-Chí chân diệu đạo ẩn Tây Thiên,
-Đông Thổ nghe lại nhờ thầy thuật.
-Tên là Hoàng Cực Hạp Tích Kinh,
-Huyền chỉ của Đạo Tông bao gồm Nho và Thích.
-Là tu là chứng Đạo song hành,
-Công dụng ngầm rõ Y Thế thuyết.
-Quên năm quên tháng một lòng duy trì,
-Hữu hiệu vô hiệu dám dừng lại.
-Từ xửa từ xưa đến ngày nay,
-Đời đời kiếp kiếp uổng lao lực.
-Sống thì năm tháng ngày giờ hiện vẫn còn,
-Một tấc quang âm đều phải tiếc.
-Một hôm viên mãn về Đại La,
-Đại La Thiên vốn là người lập.
-Chí sĩ mạnh mẽ chớ ngã lòng,
-Phật cũng là phàm phu tu mới được.
-Như Thị Như Như chẳng bịa đặt,
-Lời Hoàng Hoàng Kinh lại có thể bày tỏ.
+Nên kệ rằng:<br>
+Một hạt Xá Lợi sáng rừng rực,<br>
+Chiếu hết ức vạn vô cùng kiếp.<br>
+Đại thiên thế giới tổng quy y,<br>
+Tam thập tam thiên hàm thống nhiếp.<br>
+
+[Mẫn Nhất Đắc, đời thứ 11 của Bắc Tông Long Môn, đọc kinh này xong, hoan hỉ mạnh mẽ, trăm vái khấu đầu, cẩn thận hiến một bài kệ rằng:<br>
+Chí chân diệu đạo ẩn Tây Thiên,<br>
+Đông Thổ nghe lại nhờ thầy thuật.<br>
+Tên là Hoàng Cực Hạp Tích Kinh,<br>
+Huyền chỉ của Đạo Tông bao gồm Nho và Thích.<br>
+Là tu là chứng Đạo song hành,<br>
+Công dụng ngầm rõ Y Thế thuyết.<br>
+Quên năm quên tháng một lòng duy trì,<br>
+Hữu hiệu vô hiệu dám dừng lại.<br>
+Từ xửa từ xưa đến ngày nay,<br>
+Đời đời kiếp kiếp uổng lao lực.<br>
+Sống thì năm tháng ngày giờ hiện vẫn còn,<br>
+Một tấc quang âm đều phải tiếc.<br>
+Một hôm viên mãn về Đại La,<br>
+Đại La Thiên vốn là người lập.<br>
+Chí sĩ mạnh mẽ chớ ngã lòng,<br>
+Phật cũng là phàm phu tu mới được.<br>
+Như Thị Như Như chẳng bịa đặt,<br>
+Lời Hoàng Hoàng Kinh lại có thể bày tỏ.<br>
 
 Nguyên bản ở Thanh Dương Cung, sao chép thay đổi, bọn buôn bán chứng chư Luật Tông, luật tông sợ tiết lộ, bèn bỏ bớt chỗ quan trọng, bọn buôn bán lại theo đó sửa đổi, nên quá nửa là không chính xác. Ông Lí đầu bù ở Phụng Thiên, tên là Nhất Khí, từng luận đến chỗ này, lí do đời này truyền bản sai. Người có túc căn, có tuệ nhãn, cảm thấy lẫn lộn chẳng thuần, nhờ tôi đính chính, may có bản trên núi, giống như in từ đời Khang Hi, lấy ra so sánh, liền thành bản xịn. Đan Thư tông ta, đều là trân bảo ở đời, tiên sư Thái Hư Ông có lời bạt ở sách này, tiếc vì bị bạn mang đi. Nhớ được đại ý rằng: Kinh này là thượng thừa chính mạch, là đạo thông thiên triệt địa, trường sinh cửu thị và các việc còn lại. Lại nói: Chân nhân sinh vào thời Đông Hán, ẩn hiện bất khả trắc, trú thế thần tiên Nê Hoàn Lí Ông từng gặp ở Liêu Dương Điện tại Thanh Dương Cung, tự nói thoát hóa ở Lĩnh Nam, sinh bình lấy pháp hữu vi huyễn thế, đại ách vừa đến, mới cưỡi thiết hạc để siêu thoát, thuật thêm Hư Vô Đại Đạo để khuyến khích đồng chí. Hiện ở đây, thì thơ của Lí ông kinh này dẫn ra trong chương Luyện Hư Hợp Đạo, chính là Nê Hoàn Chân Nhân tổ của ta không nghi ngờ gì! Doãn chân nhân ở đời Nguyên Minh, họ Doãn, đời gọi là Doãn đầu bù là vậy, ở đời Đông Hán thì họ Khuất húy là Trinh, đạo hiệu Vô Ngã, trải mấy ngàn năm, thì luôn đổi tên họ mà ẩn trong trần thế. Tôi đã cuối đời, may gì mà lên được núi đó, mà lại được sách đó? Nay lại đính chính được bản sai, kì duyên trong đó thực bất khả tư nghị giả. Nên cẩn thận ghi nhớ.
 Long Môn hậu học Mẫn Nhất Đắc cẩn bạt.]
