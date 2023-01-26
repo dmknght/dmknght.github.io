@@ -1,4 +1,4 @@
-## Hoàng Cực hạp tích chứng đạo tiên kinh
+## Hoàng Cực hạp tích chú thích
 Đông Hoa chính mạch Doãn chân nhân sáng tác<br>
 Kim Cái sơn nhân Mẫn Nhất Đắc đính chính<br>
 # Chương 1 Thiêm du tiếp mệnh
