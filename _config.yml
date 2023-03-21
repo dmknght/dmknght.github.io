@@ -12,6 +12,7 @@ github_username: "dmknght"
 ######### Nothing below needs to be changed (unless you know what you're doing) #########
 #########################################################################################
 theme: "minima"
+markdown: GFM
 
 rss: rss
 
