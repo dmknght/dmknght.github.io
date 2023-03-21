@@ -55,7 +55,7 @@ Chiếu vào cơ thể khi tu luyện, ta có:
 </td><td>
 </td></tr> </table>
 
-Vì vậy, phép Trúc Cơ sử dụng cơ chế Kích Hỏa: Lúc hít vào, phổi sẽ hấp thụ Chính Khí của trời đất thành Nguyên Khí. Lúc thở ra, Nguyên Khí đi theo Nhâm Đốc mạch lên Nê Hoàn. Ta có thể so sánh:
+Vì vậy, phép Trúc Cơ sử dụng cơ chế hút - thổi: Lúc hít vào, phổi sẽ hấp thụ Chính Khí của trời đất thành Nguyên Khí. Lúc thở ra, Nguyên Khí đi theo Nhâm Đốc mạch lên Nê Hoàn. Ta có thể so sánh:
 |Phép luyện |Cơ chế |Tác dụng|||||||
 |-|-|-|-|-|-|-|-|-|
 | Luyện Kỷ | Thanh tịnh | Nguyên Tinh bốc hơi | Chuyển hóa | Nguyên Khí | Vận hành (tự nhiên) | Nhập Nê Hoàn | Nguyên Thần |
