@@ -63,7 +63,7 @@ Chiếu vào cơ thể khi tu luyện, ta có:
 Vì vậy, phép Trúc Cơ còn có thể gọi là Kích Hỏa. Chân Hỏa phát động, thì nó sẽ nương theo mạch Đốc mà tẩy Tâm. Ta có thể so sánh:
 |Phép luyện |Cơ chế |Tác dụng|||||
 |-|-|-|-|-|-|-|
-| Luyện Kỷ | Thanh tịnh | Nguyên Tinh bay hơi | Chân Hỏa | Tẩy Tâm | Nguyên Thần |
+| Luyện Kỷ | Thanh tịnh | Nguyên Tinh bốc hơi | Chân Hỏa | Tẩy Tâm | Nguyên Thần |
 | Trúc Cơ | Hút thổi | Hấp thụ Chân Khí | Kích phát Chân Hỏa | (không rõ) | Nguyên Thần |
 
 Luyện đến đây xong, hành giả có thể sử dụng Nguyên Thần tiềm nhập Khí Huyệt, là bước đầu của Tính Mệnh song tu.
