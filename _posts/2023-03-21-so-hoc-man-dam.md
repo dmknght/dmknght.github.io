@@ -7,9 +7,8 @@ Phép tu Đơn là tu Tính, Mệnh. Ta thường hay nghe nói:
 - Tính Mệnh song tu.
 
 Phép Tính Mệnh song tu, là lúc tu luyện gồm đồng thời cả Tính (Chân Hống - Chân Ý) và Mệnh (Chân Khí). Phép này sơ học thì có `ngưng Thần nhập Khí Huyệt`. Hoặc như nhập vào Huyền Quan Khiếu để luyện cũng là song tu.<br>
-Tiền Tính hậu Mệnh, hoặc tiền Mệnh hậu Tính là phép căn bản tùy theo môn phái. Tôi xin dùng cái kiến thức nông cạn mà diễn giải như sau.
-- Tiền Tính hậu Mệnh dùng Thanh tịnh làm căn bản, luyện Kỷ Hống làm mục tiêu. Bắc phái (truyền thừa là Long Môn phái) truyền dạy phép này. Phép này dùng Hỏa từ Hư Vô để Tẩy Tâm. Hỏa này là Nguyên Tinh gặp lúc Thanh Tịnh bay hơi lên mà thành, không sử dụng tác động của Hậu Thiên. Thực là tự nhiên diệu dụng vậy. Chí diệu vô cùng! Sư phụ có dạy: Luyện Kỷ xong, Trúc Cơ tự Thành. Diệu lý đằng sau, tôi nông cạn chưa thể giải thích nổi. Chỉ có thể nói rằng, phép này thanh tịnh tự nhiên, có thể nói là một bộ công phu cao cấp.<br>
-Luyện Kỷ hoàn thành, hành giả luyện tiếp Ngưng Thần nhập Khí Huyệt. Thần là Nguyên Thần, là Chân Ý, là Tâm Hư Vô, kinh gọi là Thổ. Nguyên Thần nhập Khí Huyệt, thì Khí theo Thần mà tụ lại trong huyệt. Kinh có nói Chân Thổ cầm chân Diên là ý này.
+Người thường chưa thể dùng Nguyên Thần mà luyện ngay, nên phải luyện trước phép căn bản. Tùy theo môn phái, mà hành giả luyện Tiền Tính hậu Mệnh, hoặc tiền Mệnh hậu Tín. Tôi xin dùng cái kiến thức nông cạn mà diễn giải như sau:
+- Tiền Tính hậu Mệnh dùng Hỏa từ Hư Vô để Tẩy Tâm. Hỏa này là Nguyên Tinh gặp lúc Thanh Tịnh bay hơi lên mà thành, không sử dụng tác động của Hậu Thiên. Phép này vận dụng Thanh Tịnh mà luyện, Tự Nhiên mà thành, thực là chí diệu vô cùng! Diệu lý đằng sau, tôi nông cạn chưa thể giải thích được. Chỉ có thể kết luận rằng, phép này thanh tịnh tự nhiên, có thể nói là một bộ công phu cao cấp. Phép này do Bắc phái truyền dạy, Long Môn phái là môn phái kế thừa nổi tiếng nhất. Sư phụ có dạy: Luyện Kỷ xong, Trúc Cơ tự thành.
 - Tiền Mệnh hậu Tính, là phép luyện Chân Khí trước. Phép này sử dụng Thác Thược, dùng Ngoại hô hấp để luyện Khí. Thác thược là cách người xưa dùng ống bễ (lò rèn) để tỉ dụ. Ngoại hô hấp là hít thở thông thường. Nếu chiếu theo cách tỉ dụ này, thì ta có mô hình như sau:
 
 <table>
@@ -61,4 +60,10 @@ Chiếu vào cơ thể khi tu luyện, ta có:
 </td><td>
 </td></tr> </table>
 
-Vì vậy, phép Trúc Cơ còn có thể gọi là Kích Hỏa. Chân Hỏa phát động, thì nó sẽ nương theo mạch Đốc mà tẩy Tâm.
+Vì vậy, phép Trúc Cơ còn có thể gọi là Kích Hỏa. Chân Hỏa phát động, thì nó sẽ nương theo mạch Đốc mà tẩy Tâm. Ta có thể so sánh:
+|Phép luyện |Cơ chế |Tác dụng|||||
+|-|-|-|-|-|-|-|
+| Luyện Kỷ | Thanh tịnh | Nguyên Tinh bay hơi | Chân Hỏa | Tẩy Tâm | Nguyên Thần |
+| Trúc Cơ | Hút thổi | Hấp thụ Chân Khí | Kích phát Chân Hỏa | (không rõ) | Nguyên Thần |
+
+Luyện đến đây xong, hành giả có thể sử dụng Nguyên Thần tiềm nhập Khí Huyệt, là bước đầu của Tính Mệnh song tu.
