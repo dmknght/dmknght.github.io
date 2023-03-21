@@ -19,21 +19,18 @@ Luyện Kỷ hoàn thành, hành giả luyện tiếp Ngưng Thần nhập Khí 
 | Bễ | Lò |
 |-|-|
 | Không khí| |
-|-|-|
 
 </td><td>
 
 | Bễ | Lò |
 |-|-|
 | | Không khí |
-|-|-|
 
 </td><td>
 
 | Bễ | Lò|
 |-|-|
 | | Lửa cháy |
-|-|-|
 
 </td><td>
 
@@ -48,21 +45,18 @@ Chiếu vào cơ thể khi tu luyện, ta có:
 | Phổi | Cơ thể |
 |-|-|
 | Không khí | |
-|-|-|
 
 </td><td>
 
 | Phổi | Cơ thể |
 |-|-|
 | | Chân Khí|
-|-|-|
 
 </td><td>
 
 | Phổi | Cơ thể |
 |-|-|
 | | Kích Chân Hỏa |
-|-|-|
 
 </td><td>
 </td></tr> </table>
