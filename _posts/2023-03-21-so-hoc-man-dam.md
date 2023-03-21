@@ -21,15 +21,21 @@ Luyện Kỷ hoàn thành, hành giả luyện tiếp Ngưng Thần nhập Khí 
 | Không khí| |
 |-|-|
 
+</td><td>
+
 | Bễ | Lò |
 |-|-|
 | | Không khí |
 |-|-|
 
+</td><td>
+
 | Bễ | Lò|
 |-|-|
 | | Lửa cháy |
 |-|-|
+
+</td><td>
 
 </td></tr> </table>
 
@@ -44,14 +50,21 @@ Chiếu vào cơ thể khi tu luyện, ta có:
 | Không khí | |
 |-|-|
 
+</td><td>
+
 | Phổi | Cơ thể |
 |-|-|
 | | Chân Khí|
 |-|-|
 
+</td><td>
+
 | Phổi | Cơ thể |
 |-|-|
 | | Kích Chân Hỏa |
 |-|-|
+
+</td><td>
+</td></tr> </table>
 
 Vì vậy, phép Trúc Cơ còn có thể gọi là Kích Hỏa. Chân Hỏa phát động, thì nó sẽ nương theo mạch Đốc mà tẩy Tâm.
