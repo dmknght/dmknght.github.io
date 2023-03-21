@@ -12,20 +12,23 @@ Tiền Tính hậu Mệnh, hoặc tiền Mệnh hậu Tính là phép căn bản
 Luyện Kỷ hoàn thành, hành giả luyện tiếp Ngưng Thần nhập Khí Huyệt. Thần là Nguyên Thần, là Chân Ý, là Tâm Hư Vô, kinh gọi là Thổ. Nguyên Thần nhập Khí Huyệt, thì Khí theo Thần mà tụ lại trong huyệt. Kinh có nói Chân Thổ cầm chân Diên là ý này.
 - Tiền Mệnh hậu Tính, là phép luyện Chân Khí trước. Phép này sử dụng Thác Thược, dùng Ngoại hô hấp để luyện Khí. Thác thược là cách người xưa dùng ống bễ (lò rèn) để tỉ dụ. Ngoại hô hấp là hít thở thông thường. Nếu chiếu theo cách tỉ dụ này, thì ta có mô hình như sau:
 
-<br>Hút<br>
+<table>
+<tr><th>Hút</th><th>Thổi</th><th>Tác dụng</th></tr>
+<tr><td>
+
 | Bễ | Lò |
 |-|-|
 | Không khí| |
 
-<br>Thổi<br>
 | Bễ | Lò |
 |-|-|
 | | Không khí |
 
-<br>Tác dụng<br>
 | Bễ | Lò|
 |-|-|
 | | Lửa cháy |
+
+</td></tr> </table>
 
 Chiếu vào cơ thể khi tu luyện, ta có:
 
