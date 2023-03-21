@@ -55,11 +55,11 @@ Chiếu vào cơ thể khi tu luyện, ta có:
 </td><td>
 </td></tr> </table>
 
-Vì vậy, phép Trúc Cơ sử dụng cơ chế Kích Hỏa: Lúc hít vào, phổi sẽ hấp thụ Chính Khí của trời đất vào trong cơ thể. Lúc thở ra, Chính Khí được hấp thụ vào Nhâm Đốc. Ta có thể so sánh:
+Vì vậy, phép Trúc Cơ sử dụng cơ chế Kích Hỏa: Lúc hít vào, phổi sẽ hấp thụ Chính Khí của trời đất thành Nguyên Khí. Lúc thở ra, Nguyên Khí đi theo Nhâm Đốc mạch lên Nê Hoàn. Ta có thể so sánh:
 |Phép luyện |Cơ chế |Tác dụng|||||||
 |-|-|-|-|-|-|-|-|-|
-| Luyện Kỷ | Thanh tịnh | Nguyên Tinh bốc hơi | Chuyển hóa | Nguyên Khí | Vận hành (tự nhiên) | Tẩy Tâm | Nguyên Thần |
-| Trúc Cơ | Hút (hít) vào | Hấp thụ Nguyên Khí | Hấp thụ | Nguyên Khí | Vận hành (thở ra) | Tẩy tâm | Nguyên Thần |
+| Luyện Kỷ | Thanh tịnh | Nguyên Tinh bốc hơi | Chuyển hóa | Nguyên Khí | Vận hành (tự nhiên) | Nhập Nê Hoàn | Nguyên Thần |
+| Trúc Cơ | Hút (hít) vào | Hấp thụ Nguyên Khí | Hấp thụ | Nguyên Khí | Vận hành (thở ra) | Nhập Nê Hoàn | Nguyên Thần |
 
 Như vậy, ta có thể thấy hai phép này áp dụng hai cơ chế khác nhau, nhưng tác dụng thì đều là như nhau vậy. Tượng Ngôn phá nghi có nói `Luyện kỷ nằm trong Trúc cơ, Trúc Cơ cũng không ngoài Luyện Kỷ` chứng minh cho nhận định này.
 
