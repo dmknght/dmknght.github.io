@@ -53,3 +53,37 @@ Phép nhiệm nhờ thầy truyền bí thuật
 Tài cao về xứ giết yêu ma
 ```
 Thế là rõ cái nào hay, dở
+
+# Khẩu quyết Bồ Đề tổ sư truyền
+
+Chương 2 có đoạn Hầu Vương được Bồ Đề tổ sư truyền thuật Kim Đơn, quyết rằng:
+```
+Kín đáo tròn thông là diệu quyết
+Phải tu trì ráo riết giữ thân
+Đều là tinh, khí và thần
+Giữ gìn kiên cố, mười phân vẹn toàn.
+Không rò rỉ, thân thêm cường tráng
+Đạo ta truyền càng vững tiến mau,
+Nhớ khẩu quyết có ích sâu
+Xua tan tà dục, được câu mát lành
+Được mát lành, thân mình sạch sáng.
+Đến đan đài say thưởng ánh trăng.
+Kìa trông thỏ ngọc quạ vàng
+Rắn rùa quấn quít hai hàng vệ nhau
+Quấn quít nhau thêm mau thêm chặt.
+Trồng sen vàng trên mặt lửa hồng
+Ngũ hành xuôi ngược đều thông
+Phật tiên đến cõi thành công vẹn tròn
+```
+
+Tôi xin được dùng cái kiến thức nông cạn mà giải rằng:
+- `Đều là tinh, khí và thần`: là giữ gìn Tam bảo `Tinh, Khí, Thần`. Tam bảo này đều là Tiên Thiên.
+- `Không rò rỉ, thân thêm cường tráng`: Tức là Trúc Cơ, Luyện Kỷ. Không rò rỉ là Tinh bất lậu, là lúc Trúc Cơ hoàn thành.
+- `Ánh trăng`: có lẽ chỉ Yển Nguyệt lô. Không rõ `Đan đài` ý gì, có lẽ chỉ `Đan điền` (đơn điền)
+- `Thỏ ngọc, quạ vàng`: Tức `Kim ô, ngọc thố`. `Rắn, rùa`: rùa là `Huyền Quy`. Rắn có lẽ là `hỏa xà`. Đây đều là hình tượng tỉ dụ của Diên, Hống. Theo hình thượng, thì `Huyền Quy` là `Chân Thủy` - tức Hống, rắn là `Chân Hỏa` - tức Diên. Quạ vàng, là Chân Kim, Thỏ Ngọc, là Chân Tinh (? - Theo Đan Kinh, thì Thanh Long là Mộc, là Thần. Ta thường thấy nhắc Kim - Mộc nếu luận theo Ngũ Hành. Hoặc nhắc Long - Hổ thì Hổ là tượng của Chân Tinh). Tóm lại, đoạn này thì `Rắn Rùa quấn quýt` là Thủy Hỏa kết giao. Tất cả đều dùng dị danh nói về Diên, Hống và việc kết giao.
+- `Trồng sen vàng trên mặt lửa hồng`. Theo phép luận của thuật Kim Đơn, thì phải đem Chân Dược nhập Lô, rồi dùng Chân Hỏa nung luyện. Đoan này nói về thuật "Thái Dược quy Hồ".
+- `Ngũ hành xuôi ngược đều thông`: Khai mở Huyền Quan (?)
+- `Phật tiên đến cõi thành công vẹn tròn`: Mở Huyền Quan, là đắc phẩm Phật, cũng gọi là Nhân Tiên. Tuy là "đắc", nhưng là bước đầu của Đan Đạo, bắt đầu quá trình luyện Tiên Thiên.
+
+Như vậy, khẩu quyết trên là dành cho Nhân Nguyên, mục tiêu là Kết Đơn, khai Huyền Quan
+
